@@ -1,5 +1,12 @@
 # [!EN~VIVO!]Real Madrid vs Atlético de Madrid EN VIVO: Derbi madrileño 08 de febrero de 2025
 
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)**
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)**
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgw86QcRTQHa_0UF_R0Ce_BfmEP5mTpVruRVIlWCPMMqp8oWxkzZavuKovDSK7oHt7t7csMbgy3jKUoCHU7kED_YXGoogHBc3NxSi3Jurev7bBa3b51d-V1n3mFx857KlyS0FiziJpcUdJgJFovmDw3IASQPNDjw8eVi3p9JbVffFfUQEfkj3-qYllz/s686/soccer.gif)](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)
+
 El derbi madrileño del sábado entre el Real Madrid y el Atlético de Madrid puede determinar quién está al mando de la liga, ya que los dos equipos están separados por un punto en la cima de la Liga, pero puede ser el segundo partido más importante para Los Blancos en la próxima semana. Con un partido de la fase eliminatoria de la Liga de Campeones el martes contra el Manchester City, hay muchas razones para que Carlo Ancelotti se concentre en ese partido mientras rota un poco de cara a la Liga de Campeones.
 
 Cómo verlo y probabilidades
