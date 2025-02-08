@@ -1,5 +1,12 @@
 # [!EN~DIRECTO!] Atlético de Madrid vs Real Madrid en vivo y Derbi madrileño en directo Online Gratis 08 de febrero de 2025
 
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)**
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)**
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgw86QcRTQHa_0UF_R0Ce_BfmEP5mTpVruRVIlWCPMMqp8oWxkzZavuKovDSK7oHt7t7csMbgy3jKUoCHU7kED_YXGoogHBc3NxSi3Jurev7bBa3b51d-V1n3mFx857KlyS0FiziJpcUdJgJFovmDw3IASQPNDjw8eVi3p9JbVffFfUQEfkj3-qYllz/s686/soccer.gif)](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)
+
 El derbi madrileño no necesita mucho en juego para convertirse en una de las mejores rivalidades del mundo, pero este encuentro de principios de febrero tiene mucho en juego, ya que el Real Madrid recibe al Atlético de Madrid en el Santiago Bernabéu.
 
 Los dos equipos están uno y dos en la tabla de La Liga, con Los Blancos por delante por solo un punto. Con el Barcelona acechando tres puntos por detrás en el tercer lugar, el potencial ganador de este partido pasaría a la cima de la clasificación, mientras que el perdedor correría el riesgo de caer aún más atrás.
