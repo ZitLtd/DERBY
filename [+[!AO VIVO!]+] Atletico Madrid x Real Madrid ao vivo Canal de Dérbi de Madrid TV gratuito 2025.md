@@ -1,5 +1,12 @@
 # [+[!AO VIVO!]+] Atletico Madrid x Real Madrid ao vivo Canal de Dérbi de Madrid TV gratuito 2025
 
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)**
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)**
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgw86QcRTQHa_0UF_R0Ce_BfmEP5mTpVruRVIlWCPMMqp8oWxkzZavuKovDSK7oHt7t7csMbgy3jKUoCHU7kED_YXGoogHBc3NxSi3Jurev7bBa3b51d-V1n3mFx857KlyS0FiziJpcUdJgJFovmDw3IASQPNDjw8eVi3p9JbVffFfUQEfkj3-qYllz/s686/soccer.gif)](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)
+
 O clássico de Madrid de sábado entre o Real Madrid e o Atlético de Madrid pode determinar quem está no comando do campeonato, uma vez que as duas equipas estão separadas por um ponto na liderança da La Liga, mas pode ser o segundo jogo mais importante para os Los Blancos na próxima semana. Com um jogo da fase a eliminar da Liga dos Campeões na terça-feira contra o Manchester City, há muitas razões para Carlo Ancelotti se concentrar nessa partida enquanto gira um pouco antes do jogo da Liga dos Campeões.
 
 Como assistir e probabilidades
