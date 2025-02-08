@@ -1,5 +1,12 @@
 # [!EN~DIRECTO]Atlético de Madrid - Real Madrid en directo hoy Derbi madrileño 08 de febrero de 2025
 
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)**
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)**
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgw86QcRTQHa_0UF_R0Ce_BfmEP5mTpVruRVIlWCPMMqp8oWxkzZavuKovDSK7oHt7t7csMbgy3jKUoCHU7kED_YXGoogHBc3NxSi3Jurev7bBa3b51d-V1n3mFx857KlyS0FiziJpcUdJgJFovmDw3IASQPNDjw8eVi3p9JbVffFfUQEfkj3-qYllz/s686/soccer.gif)](http://ultravibetv.com/soccer-pm-zit/?v=Jr+Git)
+
 Cómo ver el partido de La Liga entre el Real Madrid y el Atlético de Madrid, así como el horario del inicio y las noticias del equipo.
 
 El Real Madrid se prepara para un duro enfrentamiento cuando reciba a su rival de la ciudad, el Atlético de Madrid, en el Estadio Santiago Bernabéu para un derbi de La Liga de alto riesgo este sábado.
